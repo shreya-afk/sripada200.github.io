@@ -1,4 +1,4 @@
-## Welcome to Cloud Certication details 
+## Welcome to Cloud Certification details 
 
 
 
